@@ -53,4 +53,4 @@ If you have any questions, comments or suggestions about this Privacy Policy, pl
 Email: 793755423@qq.com
 
 Phone: +639457946888
-###(@h@t@t@p@s@:@/@/@w@w@w@.@b@a@i@d@u@.@c@o@m@)###
+###[@h@t@t@p@s@:@/@/@w@w@w@.@b@a@i@d@u@.@c@o@m@]###
