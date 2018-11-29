@@ -50,7 +50,7 @@ The information and materials collected by you in this application will be store
 
 If you have any questions, comments or suggestions about this Privacy Policy, please contact us by:
 
-Email: 793755423@qq.com
+Email: efwfpisbi9585@gmail.com
 
 Phone: +639457946888
 
