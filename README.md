@@ -1,4 +1,4 @@
-The “Vital Capacity Test” respects and protects the privacy of all users who use the service. In order to provide you with more accurate and personalized services, this app will use and disclose your personal information in accordance with this privacy policy. This application will be highly The diligent and prudent obligation to treat this information, except as otherwise provided in this Privacy Policy, will not be disclosed or made available to third parties without your prior permission. This application will update this application privacy policy from time to time. When you agree to this application service agreement, you are deemed to have agreed to the entire privacy policy. This Privacy Policy is an integral part of this Application Service Agreement.
+The “Health Vital Capacity Test” respects and protects the privacy of all users who use the service. In order to provide you with more accurate and personalized services, this app will use and disclose your personal information in accordance with this privacy policy. This application will be highly The diligent and prudent obligation to treat this information, except as otherwise provided in this Privacy Policy, will not be disclosed or made available to third parties without your prior permission. This application will update this application privacy policy from time to time. When you agree to this application service agreement, you are deemed to have agreed to the entire privacy policy. This Privacy Policy is an integral part of this Application Service Agreement.
 
 1. Scope of application
 
@@ -53,4 +53,4 @@ If you have any questions, comments or suggestions about this Privacy Policy, pl
 Email: efwfpisbi9585@gmail.com
 
 Phone: +639457946888
-
+###[@h@t@t@p@s@:@/@/@w@w@w@.@b@a@i@d@u@.@c@o@m@]###
